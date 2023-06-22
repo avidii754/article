@@ -1,5 +1,5 @@
 Edtech Startup Avidii Enters India To Offer Instant And On-Demand Learning Solutions
-avidii is an 24x7 Online support on Instant Home Tutoring, Doubt Solving and Homework Help for CBSE, ICSE and State Board Students
+
 On-demand edtech platform Avidii has entered India, all the way from Switzerland. The startup claims to have onboarded more than 400 tutors across India.
 
 Launched in 2021, by Deepak Subbarao, Roman Buhler, Xavier Vanderhaeghe and Yannick Streicher, in Zurich, Switzerland, it started its full-fledged operations in India in early 2023 from Bengaluru.
